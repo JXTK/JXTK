@@ -13,6 +13,8 @@
      Discord: @O.D.I.N#7593
      
      Discord Server: https://discord.gg/cAB7He9A3j
+     
+     Itch.io: https://odin7593.itch.io/
       
 
 <!---
