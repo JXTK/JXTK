@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Odin
+- 👋 Hi, I’m jDev
 
 - 👀 I’m interested in coding, gaming and anime.
 
@@ -10,7 +10,7 @@
      
      Replit: https://replit.com/@JOEL123X
      
-     Discord: @O.D.I.N#7593
+     Discord: @jDev#7593
      
      Discord Server: https://discord.gg/cAB7He9A3j
      
