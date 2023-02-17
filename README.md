@@ -1,4 +1,4 @@
-- 👋 Hi, I’m jDev
+- 👋 Hi, I’m King Joello.
 
 - 👀 I’m interested in coding, gaming and anime.
 
