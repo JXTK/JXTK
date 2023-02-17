@@ -6,15 +6,15 @@
 
 - 📫 You can reach me at:
       
-     Email: jbeatsking@gmail.com
+     Email: mujhejodo@tuta.io
      
      Replit: https://replit.com/@JOEL123X
      
-     Discord: @jDev#7593
+     Discord: @20FACES#7593
      
-     Discord Server: https://discord.gg/cAB7He9A3j
+<!--      Discord Server: https://discord.gg/cAB7He9A3j -->
      
-     Itch.io: https://odin7593.itch.io/
+<!--      Itch.io: https://odin7593.itch.io/ -->
       
 
 <!---
